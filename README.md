@@ -1,0 +1,2 @@
+# satyatech
+IT information
